@@ -1,6 +1,8 @@
 # collaboratin
 
-## Easy pancakes
+## DELICIOUS FOOD
+
+### Crepes
 
 Prep:10 mins
 Cook:20 mins
